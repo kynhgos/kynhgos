@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @kynhgos
+- 👀 I’m interested in Computer Science
+- 🌱 I’m currently studying Informatics in AUTh                      	 			    		                                                                
